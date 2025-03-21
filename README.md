@@ -1,1 +1,0 @@
-# Basis_Data_Muhamad-Rio-Abdul-Talib_24241056
